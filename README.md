@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @trantam88
+- 👋 Hi, I’m Tam Tran 
 - 👀 I’m interested in high technology and its applications
 - 🌱 I’m currently learning and working on human resource development 
 - 💞️ I’m looking to collaborate on recruitment projects, mass recruitment
